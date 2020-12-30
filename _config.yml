@@ -1,1 +1,5 @@
 theme: jekyll-theme-slate
+title: Project 1000 Plus
+description: Main goal of this initiative is to present various music with one constraint - only Vinyl records. It must be played from Vinyl. No MP3, no streaming, no DVS, no CD. Only pure Vinyl.
+google_analytics: UA-58690845-1
+show_downloads: false
