@@ -4,7 +4,7 @@
 
 # Sessions
 
-* 2020-10-03: Poniecki & Siwinski B2B
+* [2020-10-03: Poniecki & Siwinski B2B](./2020-10-03.md)
 * 2020-06-21: Vinylogranie
 
 ----
