@@ -2,7 +2,7 @@
 
 [Mixcloud](https://www.mixcloud.com/project1000plus/), [Facebook](https://www.facebook.com/project1000plus)
 
-# Sessions
+# Vinyl Sessions
 
 * [Poniecki & Siwinski B2B (October 2020)](./2020-10-03.md)
 * [**Gramen (August 2020)**](./2020-08-08-gramen.md)
