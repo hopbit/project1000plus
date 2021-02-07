@@ -5,7 +5,7 @@
 # Sessions
 
 * [Poniecki & Siwinski B2B (October 2020)](./2020-10-03.md)
-* [**Gramen (August 2020)**][./2020-08-08-gramen.md]
+* [**Gramen (August 2020)**](./2020-08-08-gramen.md)
 * [Vinylogranie (June 2020)](./2020-06-21-vinylogranie.md)
 
 
