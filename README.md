@@ -4,7 +4,7 @@
 
 # Vinyl Sessions
 
-* [Poniecki & Siwinski B2B (October 2020)](./2020-10-03.md)
+* [Black Gold Night (October 2020)](./2020-10-03-black-gold-night.md)
 * [**Gramen (August 2020)**](./2020-08-08-gramen.md)
 * [Vinylogranie (June 2020)](./2020-06-21-vinylogranie.md)
 
