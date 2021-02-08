@@ -1,6 +1,6 @@
 ![Project 1000 Plus](https://github.com/hopbit/sets/raw/master/README.jpg)
 
-[Mixcloud](https://www.mixcloud.com/project1000plus/), [Facebook](https://www.facebook.com/project1000plus)
+[Mixcloud](https://www.mixcloud.com/project1000plus/), [Instagram](https://www.instagram.com/project1000plus/), [Facebook](https://www.facebook.com/project1000plus)
 
 # Vinyl Sessions
 
