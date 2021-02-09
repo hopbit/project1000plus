@@ -7,7 +7,12 @@ DJs:
 [YouTube](https://www.youtube.com/channel/UCo5ZkQ4xLpDnOgFLay78E5Q), 
 [Mixcloud](https://www.mixcloud.com/Poniecki/), 
 [Soundcloud](https://soundcloud.com/poniecki/popular-tracks) 
-* [**Siwiński**](https://hopbit.github.io/sets/)
+* [**Siwiński**](https://hopbit.github.io/sets/): 
+[Soundcloud](https://soundcloud.com/progressive-awake/popular-tracks), 
+[Mixcloud](https://www.mixcloud.com/progressiveawake/), 
+[Spotify](https://open.spotify.com/playlist/2t2d8XXigBzIN9VVOZUTm6), 
+[Facebook](https://www.facebook.com/ProgressiveAwake), 
+[Twitter](https://twitter.com/progawake)
 
 Links:
 * [**Listen on MIXCLOUD**](https://www.mixcloud.com/project1000plus/vinylogranie-siwinski-poniecki-2020-06-21/)
