@@ -7,7 +7,9 @@ DJs:
 [YouTube](https://www.youtube.com/channel/UCo5ZkQ4xLpDnOgFLay78E5Q), 
 [Mixcloud](https://www.mixcloud.com/Poniecki/), 
 [Soundcloud](https://soundcloud.com/poniecki/popular-tracks) 
-* [**Siwiński**](https://hopbit.github.io/sets/)
+* [**Siwiński**](https://hopbit.github.io/sets/): 
+[Spotify](https://open.spotify.com/user/hopbit?si=pAVfyUj-ShGiy38p4GQeYA), 
+[Last.FM](https://www.last.fm/user/lsiwinski)
 
 Links:
 * **Watch on Facebook:** 
@@ -15,11 +17,11 @@ Links:
 [Part 2](https://www.facebook.com/Poniecki/videos/10218217242770376/), 
 [Part 3](https://www.facebook.com/Poniecki/videos/10218218148993031/)
 * **Listen on MIXCLOUD:** 
-[**PART 1**](https://www.mixcloud.com/project1000plus/session-2020-10-03-part-1-poniecki-siwinski/), 
-[**PART 2**](https://www.mixcloud.com/project1000plus/session-2020-10-03-part-2-poniecki-siwinski/)
+[Part 1](https://www.mixcloud.com/project1000plus/session-2020-10-03-part-1-poniecki-siwinski/), 
+[Part 2](https://www.mixcloud.com/project1000plus/session-2020-10-03-part-2-poniecki-siwinski/)
 * **Download MP3:** 
-[**PART 1**](https://1drv.ms/u/s!AmzuuXrjf51v34ElrDk38LlqMevcPA?e=bhBSvP), 
-[**PART 2**](https://1drv.ms/u/s!AmzuuXrjf51v34EmXl637LRw0c_8-g?e=BjyDoh)
+[Part 1](https://1drv.ms/u/s!AmzuuXrjf51v34ElrDk38LlqMevcPA?e=bhBSvP), 
+[Part 2](https://1drv.ms/u/s!AmzuuXrjf51v34EmXl637LRw0c_8-g?e=BjyDoh)
 
 ----
 

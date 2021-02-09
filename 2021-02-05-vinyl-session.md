@@ -2,8 +2,6 @@
 
 [![Project 1000 Plus](https://thumbnailer.mixcloud.com/unsafe/160x160/profile/b/1/f/4/6e1d-6c87-46fa-8a6a-a8e97615cea2)](https://www.youtube.com/watch?v=KpILvH0ezBw)
 
-[**Facebook Event**](https://www.facebook.com/events/277842430415743/)
-
 DJs:
 * [**Shortfinger**](https://www.facebook.com/shortfingermusic): 
 [YouTube](https://www.youtube.com/user/shortfingermusic/featured), 
@@ -14,9 +12,12 @@ DJs:
 [YouTube](https://www.youtube.com/channel/UCo5ZkQ4xLpDnOgFLay78E5Q), 
 [Mixcloud](https://www.mixcloud.com/Poniecki/), 
 [Soundcloud](https://soundcloud.com/poniecki/popular-tracks) 
-* [**Siwiński**](https://hopbit.github.io/sets/)
+* [**Siwiński**](https://hopbit.github.io/sets/): 
+[Spotify](https://open.spotify.com/user/hopbit?si=pAVfyUj-ShGiy38p4GQeYA), 
+[Last.FM](https://www.last.fm/user/lsiwinski)
 
 Links:
+* [**Join Facebook Event**](https://www.facebook.com/events/277842430415743/)
 * **Watch on YouTube**: 
 [Part 1](https://www.youtube.com/watch?v=YSf2kNsz5kY),
 [Part 2](https://www.youtube.com/watch?v=KpILvH0ezBw)
