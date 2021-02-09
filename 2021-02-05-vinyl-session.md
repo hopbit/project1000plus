@@ -17,10 +17,11 @@ DJs:
 [Last.FM](https://www.last.fm/user/lsiwinski)
 
 Links:
-* [**Join Facebook Event**](https://www.facebook.com/events/277842430415743/)
+
 * **Watch on YouTube**: 
 [Part 1](https://www.youtube.com/watch?v=YSf2kNsz5kY),
 [Part 2](https://www.youtube.com/watch?v=KpILvH0ezBw)
+* [**Facebook Event**](https://www.facebook.com/events/277842430415743/)
 
 ----
 
