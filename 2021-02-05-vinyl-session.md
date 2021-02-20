@@ -1,6 +1,18 @@
 # Vinyl Session (February 2021)
 
-[![Project 1000 Plus](https://thumbnailer.mixcloud.com/unsafe/160x160/profile/b/1/f/4/6e1d-6c87-46fa-8a6a-a8e97615cea2)](https://www.youtube.com/watch?v=KpILvH0ezBw)
+[![Project 1000 Plus](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/1/4/9/d/a20f-1d67-42fc-a2ba-d6cd423cdf8d)](https://www.youtube.com/watch?v=KpILvH0ezBw)
+
+Event: [**Facebook Event**](https://www.facebook.com/events/277842430415743/)
+
+Links:
+
+* Watch on YouTube: 
+  * [**Part 1**](https://www.youtube.com/watch?v=YSf2kNsz5kY)
+  * [**Part 2**](https://www.youtube.com/watch?v=KpILvH0ezBw)
+* Listen on Mixcloud:
+  * [**Part 1**](https://www.mixcloud.com/project1000plus/vinyl-session-part-1-onebyone-february-2021/)
+  * [**Part 2**](https://www.mixcloud.com/project1000plus/vinyl-session-part-2-b2b-february-2021/)
+
 
 DJs:
 * [**Shortfinger**](https://www.facebook.com/shortfingermusic): 
@@ -15,13 +27,6 @@ DJs:
 * [**Siwiński**](https://hopbit.github.io/sets/): 
 [Spotify](https://open.spotify.com/user/hopbit?si=pAVfyUj-ShGiy38p4GQeYA), 
 [Last.FM](https://www.last.fm/user/lsiwinski)
-
-Links:
-
-* **Watch on YouTube**: 
-[Part 1](https://www.youtube.com/watch?v=YSf2kNsz5kY),
-[Part 2](https://www.youtube.com/watch?v=KpILvH0ezBw)
-* [**Facebook Event**](https://www.facebook.com/events/277842430415743/)
 
 ----
 
