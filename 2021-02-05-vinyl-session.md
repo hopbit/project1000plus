@@ -2,7 +2,7 @@
 
 [![Project 1000 Plus](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/1/4/9/d/a20f-1d67-42fc-a2ba-d6cd423cdf8d)](https://www.youtube.com/watch?v=KpILvH0ezBw)
 
-Event: [**Facebook Event**](https://www.facebook.com/events/277842430415743/)
+[**Facebook Event**](https://www.facebook.com/events/277842430415743/)
 
 Links:
 
