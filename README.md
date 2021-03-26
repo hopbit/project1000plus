@@ -3,7 +3,8 @@
 You can find us on: 
 [**Mixcloud**](https://www.mixcloud.com/project1000plus/), 
 [**Facebook**](https://www.facebook.com/project1000plus), 
-[**Instagram**](https://www.instagram.com/project1000plus/)
+[**Instagram**](https://www.instagram.com/project1000plus/), 
+[**Twitter**](https://twitter.com/Project1000Plus)
 
 # Events & Sets
 
