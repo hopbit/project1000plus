@@ -12,7 +12,7 @@ Genres: #house #disco #techhouse #vocal #acidhouse #synthpop
 
 Tracklist:
 
-* NOIR - ALL ABOUT HOUSE MUSIC (FULL VOX MIX)
+* NOIR - ALL ABOUT HOUSE MUSIC (FULL VOX MIX) // [discogs](https://www.discogs.com/Noir-All-About-Housemusic/release/723017)
 * LATE NITE TUFF GUY - DREAMS // [discogs](https://www.discogs.com/LNTG-Tuff-Cut-08/release/7269257)
 * BEATAMINES - SOULMATE // [discogs](https://www.discogs.com/Beatamines-In-Motion/release/4297770)
 * MARC DE VOLE - BURNIN LOVE // [discogs](https://www.discogs.com/Various-When-Fire-Loves/release/5981955)
