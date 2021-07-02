@@ -3,7 +3,7 @@
 Date: 2021-06-28
 Genres: #house #disco #techhouse #vocal #acidhouse #synthpop
 
-[![Project 1000 Plus](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/2/b/2/1/3374-eff8-45e3-ab64-49383f79959e)](https://www.youtube.com/watch?v=GvweekKmS3o)
+[![Project 1000 Plus](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/8/5/0/c/19de-3f2c-42a2-ab50-fc6b5f8ff456)](https://www.youtube.com/watch?v=GvweekKmS3o)
 
 
 * [Watch on YOUTUBE](https://www.youtube.com/watch?v=GvweekKmS3o)
