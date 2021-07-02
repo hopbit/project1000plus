@@ -1,5 +1,8 @@
 # Poniecki @ Winylowa Kanciapa (January 2021)
 
+Date: 2021-01-11  
+Genres: #house  
+
 [![Project 1000 Plus](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/2/b/2/1/3374-eff8-45e3-ab64-49383f79959e)](https://www.youtube.com/watch?v=rol_og7UxZo)
 
 
