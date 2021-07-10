@@ -11,6 +11,7 @@ You can find us on:
 # Events & Sets
 
 * [**Siwinski @ Winylowa Kanciapa #066**](./2021-06-28-siwinski-at-winylowa-kanciapa.md)
+* [Black Gold Session @ The Blue Oyster (May 2021)](./2021-05-19-black-gold-session-blue-oyster.md)
 * [Vinyl Session (February 2021)](./2021-02-05-vinyl-session.md)
 * [Poniecki @ Winylowa Kanciapa #043](./2021-01-11-poniecki-at-winylowa-kanciapa.md)
 * [Black Gold Night (October 2020)](./2020-10-03-black-gold-night.md)
