@@ -5,7 +5,8 @@ You can find us on:
 [**Facebook**](https://www.facebook.com/project1000plus), 
 [**Instagram**](https://www.instagram.com/project1000plus/), 
 [**YouTube**](https://www.youtube.com/channel/UCZSjYCSqL9eMB3av3TlZRvg), 
-[**Twitter**](https://twitter.com/Project1000Plus)
+[**Twitter**](https://twitter.com/Project1000Plus), 
+[**Twitch**](https://www.twitch.tv/project1000plus)
 
 # Events & Sets
 
