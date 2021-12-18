@@ -3,15 +3,14 @@
 Date: 2021-11-26  
 Genres: #progresive #tech #house #techno  
 
-[![Project 1000 Plus - Black Gold Session Vol. 11](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/8/5/0/c/19de-3f2c-42a2-ab50-fc6b5f8ff456)](https://www.youtube.com/watch?v=SKROaJy1tLQ)
+[![Project 1000 Plus - Black Gold Session Vol. 11](https://thumbnailer.mixcloud.com/unsafe/300x300/extaudio/2/9/4/3/2cb2-97e0-421b-8164-25c7c9e4a5f6)](https://www.youtube.com/watch?v=SKROaJy1tLQ)
 
 Siwiński B2B Poniecki
 
 * [Watch on YOUTUBE](https://www.youtube.com/watch?v=SKROaJy1tLQ)
-* [Listen on MIXCLOUD](?)
-* [Download MP3](?)
+* [Listen on MIXCLOUD](https://www.mixcloud.com/project1000plus/black-gold-session-vol-11-november-2021/)
+<!-- * [Download MP3](?) -->
 
-Tracklist: On demand.
 
 ----
 
